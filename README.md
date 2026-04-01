@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rohit Raj
-**A passionate Cloud Engineer || DevOps Engineer || Software Engineer
+**A passionate Cloud Engineer || Web Developer
 
 Email Me 👉 ✉️ **rohit8409384150@gmail.com** For Collaboration/Project or Anything Else.
 
